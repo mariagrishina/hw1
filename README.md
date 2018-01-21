@@ -2,11 +2,9 @@
 - Гришина Мария Максимовна
 - [фотография](https://pp.userapi.com/c841238/v841238571/3f922/y-pkoaFyM3U.jpg)
 ***********
-Личные контакты
-- 
-Корпоративная почта: mmgrishina@edu.hse.ru
-Персональная почта: maria_grishina69@mail.ru
-Страница вконтакте:https://vk.com/mariagrishinaa
+- Корпоративная почта: mmgrishina@edu.hse.ru
+- персональаня почта: maria_grishina69@mail.ru
+- Страница вконтакте: https://vk.com/mariagrishinaa
 **********
 - Москва
 - Студент 1 курса бакалавриата ВШЭ
