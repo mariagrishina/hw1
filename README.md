@@ -4,7 +4,7 @@
 ***********
 # Личные контакты
 - Корпоративная почта: mmgrishina@edu.hse.ru
-- персональаня почта: maria_grishina69@mail.ru
+- Персональная почта: maria_grishina69@mail.ru
 - Страница вконтакте: https://vk.com/mariagrishinaa
 **********
 # О себе
